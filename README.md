@@ -7,3 +7,5 @@ A secured cryptocurrency ecosystem fully-backed by high quality investment grade
 - Store of value
 - Stable in nature
 - Access global market
+
+* To be updated regularly!
