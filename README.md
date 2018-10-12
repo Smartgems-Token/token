@@ -8,4 +8,7 @@ A secured cryptocurrency ecosystem fully-backed by high quality investment grade
 - Stable in nature
 - Access global market
 
+Soft luanching on 01 Nov 2018.
+Please note that Smartgems Token Offering is for member or invited only!
+
 * To be updated regularly!
